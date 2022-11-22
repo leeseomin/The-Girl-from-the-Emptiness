@@ -3,6 +3,9 @@
 
 
 On youtube :  https://youtu.be/-TBbABEeTU4
+
+
+shorts version : https://youtube.com/shorts/_1OVn6IQBPA
    <br/>  
    
 ### Each work is stored in the ART folder.  
