@@ -1,4 +1,4 @@
-# "The-Girl-from-the-Emptiness"  art project (2022)
+# "The Girl from the Emptiness"  art project (2022)
 
 
 
